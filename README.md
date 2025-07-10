@@ -1,0 +1,1 @@
+My first game, idk why i made this tho cause i aint going into game dev- more so "indie" game dev with knowing that this would be more of my passion thing than a thing that might also help me get sum bucks
